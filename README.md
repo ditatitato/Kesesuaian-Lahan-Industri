@@ -1,0 +1,1 @@
+# KesesuaianLahanIndustriKab.kediri
